@@ -1,6 +1,8 @@
 # Scotland
 Scotland Sites to See - From Perth to Inverness
 
+
+
 📜 Perth, Scotland: A 20-Point Historical Journey 📜
 🏞️ Prehistoric Foundations: Earliest settlements by Mesolithic hunter-gatherers (over 8,000 years ago) along the River Tay.
 🌳 Pictish Heartland: The name "Perth" likely derives from a Pictish word like "Pert" meaning 'wood' or 'copse', indicating significant Pictish presence.
